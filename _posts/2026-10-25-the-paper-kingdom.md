@@ -631,7 +631,7 @@ In a 2014 interview, Gerard said *The Paper Kingdom* was going to be a whole sta
 
 It's *possible* that concept artwork for *The Paper Kingdom* does still exist, though this remains unconfirmed as no concept art from the album has yet to resurface online.
 ## Contact
-If you have any questions or information that I might find useful, please send an email to [buckshot_collie263@simplelogin.com](mailto:buckshot_collie263@simplelogin.com), and I'll get back to you as soon as possible. Alternatively, you can conact me through Discord at `zweegle`. **Friend requests without a personalized message will be denied.**
+If you have any questions or information that I might find useful, please send an email to [buckshot_collie263@simplelogin.com](mailto:buckshot_collie263@simplelogin.com), and I'll get back to you as soon as possible.
 
 ## Special Thanks
 
