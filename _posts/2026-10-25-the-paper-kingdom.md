@@ -630,8 +630,10 @@ There's currently no confirmed artwork from *The Paper Kingdom* available online
 In a 2014 interview, Gerard said *The Paper Kingdom* was going to be a whole stage production, complete with costumes and sets[^fn-nth-22]; in an August 2012 interview with Kevin Smith, Gerard said he was planning to meet with Colleen Atwood (costume designer for The Black Parade and Danger Days) to discuss costumes for the album.[^fn-nth-22]
 
 It's *possible* that concept artwork for *The Paper Kingdom* does still exist, though this remains unconfirmed as no concept art from the album has yet to resurface online.
+
 ## Contact
 If you have any questions or information that I might find useful, please send an email to [buckshot_collie263@simplelogin.com](mailto:buckshot_collie263@simplelogin.com), and I'll get back to you as soon as possible.
+
 
 ## Special Thanks
 
@@ -639,9 +641,15 @@ If you have any questions or information that I might find useful, please send a
 
 - **Kekktye**, for their [amazing timeline](https://www.reddit.com/r/ThePaperKingdomMCR/comments/1r3ygy0/leaked_files_masterlist_timeline_validity_sourced/) that covered the leaks as they were ongoing.
 
-- The team at **My Chemical Leakage**, for creating the [My Chemical Romance tracker](https://docs.google.com/spreadsheets/d/1FQAhGUAkdn_0H31c_eAGzJxqLBrN4OB-M6Gn1UXtOQU/edit?gid=0#gid=0).
+- The team at [MCRchivists on Discord](https://discord.gg/UGujNKYwam), for creating the [My Chemical Romance tracker](https://docs.google.com/spreadsheets/d/1FQAhGUAkdn_0H31c_eAGzJxqLBrN4OB-M6Gn1UXtOQU/edit?gid=0#gid=0).
 
 - **Hamiltron**, for creating the amazing absolutely [cover art](https://www.reddit.com/r/ThePaperKingdomMCR/comments/1r95km9/my_take_on_the_paper_kingdom_cover/) and letting me use it for this page! 
+
+## Community Spaces
+
+- [MCRchivists Discord](https://discord.gg/Gy8RhqRhn)
+- [r/ThePaperKingdomMCR](https://www.reddit.com/r/ThePaperKingdomMCR/)
+- [r/MyChemRomanceLostMedi](https://www.reddit.com/r/MyChemRomanceLostMedi)
 
 ## Credits
 
