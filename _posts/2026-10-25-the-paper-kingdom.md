@@ -641,7 +641,7 @@ If you have any questions or information that I might find useful, please send a
 
 - **Kekktye**, for their [amazing timeline](https://www.reddit.com/r/ThePaperKingdomMCR/comments/1r3ygy0/leaked_files_masterlist_timeline_validity_sourced/) that covered the leaks as they were ongoing.
 
-- The team at [MCRchivists on Discord](https://discord.gg/UGujNKYwam), for creating the [My Chemical Romance tracker](https://docs.google.com/spreadsheets/d/1FQAhGUAkdn_0H31c_eAGzJxqLBrN4OB-M6Gn1UXtOQU/edit?gid=0#gid=0).
+- The team at [MCRchivists on Discord](https://discord.gg/Gy8RhqRhn), for creating the [My Chemical Romance tracker](https://docs.google.com/spreadsheets/d/1FQAhGUAkdn_0H31c_eAGzJxqLBrN4OB-M6Gn1UXtOQU/edit?gid=0#gid=0).
 
 - **Hamiltron**, for creating the amazing absolutely [cover art](https://www.reddit.com/r/ThePaperKingdomMCR/comments/1r95km9/my_take_on_the_paper_kingdom_cover/) and letting me use it for this page! 
 
